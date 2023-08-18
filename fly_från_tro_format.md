@@ -110,7 +110,7 @@ Körde bort, det var det enda.
   
 ”Herren, du som är min herde…”, bad jag. Och bönen lindrade den akuta smärtan, den som annars med all säkerhet hade förmått mig att vända om. Körde rakt, tydligt. Körde långt. Tittade inte åt något annat håll och frågade mig inte om vad för mål jag hade. Här fanns ingenting – jag visste det men förstod det inte ännu. Inget mål, ingen ram, ingen mening. Det enda var färden, riktningen och den hastighet i vilken jag befann mig.     
   
-	Och hastigheten sjöng i mig tillsammans med bönen till Herran. De blev nästan synonyma, de övergick i varandra. Sjuttio kilometer i timman var mitt hem likväl som den bön jag bad, den bön som använde mina stämband.   
+Och hastigheten sjöng i mig tillsammans med bönen till Herran. De blev nästan synonyma, de övergick i varandra. Sjuttio kilometer i timman var mitt hem likväl som den bön jag bad, den bön som använde mina stämband.   
   
 De båda var mina tillfälliga hemvister.  
   
