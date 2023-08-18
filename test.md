@@ -1,17 +1,15 @@
 
   
+  # Fly från tro  
   
-	
-  
-	# Fly från tro  
-  
-	Roman om avprogrammering  
+Roman om avprogrammering  
   
 	  
   
 	   
   
-	## Kapitel 1  
+	
+ ## Kapitel 1  
   
 	Rörde med svettiga fingertoppar över metallen, såg upp mot flygelns underrede en sista gång och kände hur kroppen alltmer gjorde sig redo – en fulltankad Fiat stod parkerad ett kvarter därifrån, jag höll i den blå tygkassen som jag sytt för ändamålet, hade memorerat koden till kassaskåpet, om och om igen.    
     
