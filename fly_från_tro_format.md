@@ -104,7 +104,7 @@ Körde längs samhällets huvudgata, svängde bort som planerat. Stod vid stora 
   
        
   
-	## Kapitel 2      
+## Kapitel 2      
   
 	Körde bort, det var det enda.       
   
