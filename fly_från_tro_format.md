@@ -102,7 +102,7 @@ Körde längs samhällets huvudgata, svängde bort som planerat. Stod vid stora 
   
   Jag ville synd, ville inte nåd, för det var synden som gjorde mig infertil och det visste jag lika väl som Herran. Detta var allt annat än ett missionsuppdrag. Jag svängde av mot höger.    
   
-       
+      
   
 ## Kapitel 2      
   
