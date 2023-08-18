@@ -1,5 +1,5 @@
   
-	 <span style="font-family: Times New Roman; font-size:12;">  
+	
 	# Fly från tro  
 	Roman om avprogrammering  
 	  
