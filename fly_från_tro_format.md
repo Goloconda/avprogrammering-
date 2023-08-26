@@ -372,108 +372,63 @@ Rummet fylldes alltmer av rök och brandlukt, hur jag än petade i glöden med e
   
 Jag reste mig upp, backade några steg. Föste ner ett antal gula tidningar från stolen, ställde den framför spisen och satte mig. Tog mjölkpaketet från diskbänken, skruvade av korken, drack. En söt smak som spred sig, fet och lugnande. Vågade luta mig tillbaka mot pinnstolens rygg. Tuggummipaketet låg i fickan, tog upp det. Öppna, ta en bit, in i munnen, tugga. Tänk, jag satt där och syndade. Tuggade, mintsmaken brast, tuggade, ett motstånd mellan tänderna.  
   
-I det samma uppstod ett sugande ljud i spisen, luftströmmen hade bestämt sig. Såg hur ett litet korn av glöd spred sig till en sticka som antändes. Det blev en låga, den växte och blev starkare. Det var drag i spisen. Elden spred sig till övriga veden som jag lagt dit och genast började det knaka och spraka. Det värmde, drev bort det råa och ödsliga. Jag kunde stänga luckan och känna med handen över plattorna, märka hur det hettade allt mer.   
+I det samma uppstod ett sugande ljud i spisen, luftströmmen hade bestämt sig. Såg hur ett litet korn av glöd spred sig till en sticka som antändes. Det blev en låga, den växte och blev starkare. Det var drag i spisen. Elden spred sig till övriga veden som jag lagt dit och genast började det knaka och spraka. Det värmde, drev bort det råa och ödsliga. Jag kunde stänga luckan och känna med handen över plattorna, märka hur det hettade allt mer.    
   
-Drack av den feta mjölken, värmen från spisen mot ansiktet – jag kände efter. Vilken storslagen förändring mot hastigheten, mot församlingen, mot den genomgripande tomheten. Det här var ett riktigt hem.  
-  
-Då hördes långsamma steg från hallen. Vände mig ditåt, frös fast, andlös. Dörren öppnades några centimeter och två gula ögon blev synliga i dörrspringan.   
-  
- Höll mjölkpaketet lätt vinklat framför ansiktet, gipsades fast i drickrörelsen just där. Anspänningen spred sig från tänderna, ut i käkarna och en smärta, ett vilset ilande utefter en nerv, fortsatte ned mot den kalla skräcken i bröstet. Gestalten tog ett fullkomligt ljudlöst kliv in i köket.  
-  
-”Rör dig inte en millimeter”, sa han, rösten lugn och hård på samma gång.  
-  
+Mina läppar drack av den feta mjölken, värmen från vedspisen mot ansiktet – jag kände efter. Vilken storslagen förändring detta var mot hastigheten, mot församlingen, mot den genomgripande tomheten. Det här var ett riktigt hem. 
+Då hördes långsamma steg från hallen. Jag vände mig ditåt, höll andetaget stilla i bröstet. Dörren öppnades några centimeter och två gula ögon blev synliga i dörrspringan. Händerna höll mjölkpaketet lätt vinklat framför ansiktet, drickrörelsen gipsades fast. Anspänningen spred sig från tänderna, ut i käkarna och en ringande smärta ilade vilset utefter en nerv. Gestalten tog ett fullkomligt ljudlöst kliv in i köket. 
+”Rör dig inte en millimeter”, sa han, rösten lugn och hård på samma gång. 
+
    
   
-  
-  
+
    
   
 ## Kapitel 5  
   
-Hörde också något bakom mig. Ett ljud som tvingade mig att stelna ytterligare, till den grad, slutade helt att andas – ville ju inte dö. Inte nu, inte precis när jag hittat min plats i världen. Ändå, lyfte mjölkpaketet och mina båda händer över huvudet, rörde mig.   
-  
-För jag var en ofarlig person, en som inte hotade.   
-  
-Lyfte händerna i en avvärjande bön om nedlagda vapen.   
-  
-Gula ögonen vid dörren stirrade intensivt på något strax bakom mig, hans kropp så stilla, hade svårt att fokusera honom med blicken. Som att stillheten fick honom att absorberas in i bakgrunden, eller som att han förvandlades till ett ting. Blev till en av de många saker som låg på golvet och skräpade i detta, tills alldeles nyligen, övergivna kök. Eller, var kanske inte huset så öde som jag trodde? Något levde här, alldeles uppenbart.   
-  
-Och detta – något – prasslade bakom mig.   
-  
-Gestalten vid dörren for upp från sin position, lyfte i en båge med framtassarna utsträckta som två vapen. Tycktes springa i luften, rörde sig så snabbt att han mera liknade ett streck än en katt och landade på en mörk råttkropp. Rest mig tvärt, hoppade till, mjölk skvätte ut över golvet. Katten höll råttans nacke mellan sina käkar men han hade ändå inte ett fullständigt övertag – den grova råttkroppen vred sig segervisst och hårlöst under kattens vilt sparkande baktassar. Tätt intill dem låg påsen med bröd, den jag köpt på macken.   
-  
-Inte hade jag lagt den där på golvet?   
-  
+Jag hörde också något annat bakom mig. Ett ljud som tvingade mig att stelna ytterligare, slutade helt att andas – för jag ville ju inte dö. Inte nu, inte precis när jag hittat min plats i världen. Ändå – jag lyfte mjölkpaketet och mina båda händer över huvudet.   
+Gula ögonen vid dörren stirrade intensivt på något strax bakom mig, hans kropp så stilla, jag hade svårt att fokusera honom med blicken. Som att stillheten fick honom att absorberas in i bakgrunden, eller snarare – en kropp förvandlad till ett oprecist ting. Han var en bland många saker som låg på golvet och skräpade i detta, tills alldeles nyligen, övergivna kök. Eller, var kanske inte huset så öde som jag trodde? Något levde här, alldeles uppenbart. Och detta – något – prasslade bakom mig.   
+Gestalten vid dörren for upp från sin position, lyfte i en båge med framtassarna utsträckta som två vapen. Tycktes springa i luften, den rörde sig så snabbt att han mera liknade ett streck än en katt och landade på en mörk råttkropp. Jag reste mig tvärt, mjölk skvätte fram ur tetran, ut över golvet. Katten höll råttans nacke mellan sina käkar men den hade ändå inte ett fullständigt övertag – den grova råttkroppen vred sig segervisst och hårlöst under kattens vilt sparkande baktassar. Tätt intill dem låg påsen med bröd, det var den jag köpt på macken. Inte hade jag lagt den på golvet?  
 ”Ta påsen för fan”, skrek katten.   
-  
-Vad menade han? Inte ville jag blanda mig i den där striden. Och, var kom brödpåsen in i bilden? Sträckte mig fram, såg mest två kroppar som stred. Brödpåsen låg till hälften dold på golvet bakom dem. Råttan hade lyckats vrida sig ut ur kattens gap, rann blod ur huggmärken på halsen men inget av de båda djuren tycktes villigt att ge upp. Så, något av de båda djuren skulle alltså dö?   
-  
+Vad menade han? Inte ville jag blanda mig i striden. Och, var kom brödpåsen in i bilden? Jag sträckte mig fram för att förstå bättre men såg mest två kroppar som stred. Brödpåsen låg till hälften dold på golvet bakom dem. Råttan hade lyckats vrida sig ut ur kattens gap, det rann blod ur huggmärken på halsen men inget av de båda djuren tycktes villigt att ge upp. Så, någon av dem skulle alltså behöva dö.  
 Katten la ena tassen runt råttans kropp, tog spjärn genom att borra in klorna och kunde på så sätt använda råttan som språngbräda när han for ut med bakbenen och skjutsade i väg brödpåsen i riktning mot mig med en välriktad spark.   
-  
-Tog ett steg närmare, såg att brödet i påsen var angripet. Vände mig åter mot de båda kropparna som brottades – var det bröd allt detta handlade om? Råttan satt på kattens mage, svansarna vred sig spasmiskt som avhuggna elkablar. Gnagarkroppen med avskavda partier av skorv i gråa skinnet, kraftig om buken – kände en kväljning, ett bestämt äckel som en kramp i halsen, kunde ändå inte slita min blick från den. Ryckte i ena mungipan och jag grep något hårdare om mjölkpaketet. Katten höll på att förlora. Och ändå – råttan släppte närmast ifrån sig ett skimmer, en glöd i sitt sätt att strida som sa att den var hemmastadd här. Om bröd fanns inom dessa väggar så tillhörde det tvivelsutan råttan. Ja, katten vek sig, saknade kraften. Och jag höll väl, därmed, också på att förlora. För hur skulle jag kunna dela utrymme med en sådan råttbest? Leva i skuggan av en självlysande hemmastaddhet.    
-  
-Eldgaffeln stod kvar vid spisen. Smög dit utan att släppa slagsmålet med blicken. Besten riktigt njöt, den höll på att vinna kampen, den kostade på sig att dra ut på striden. Katten kämpade, försökte sparka bort råttan med utspärrade klor på baktassarna utan att lyckas med mera än att rispa råttskinnet och svansen. Jag grep om järnet, höll eldgaffeln på så sätt som jag förstått att människor håller i golfklubbor. Laddade, spände kroppen.   
-  
-”Här får du, råttbuse”, sa jag, klev in i striden, viss om min överlägsenhet. Ändå het och svettig i ansiktet, anfäktad – som att jag försvarade något jag länge hade ägt och kämpat för.   
-  
-En slags värdighet. Ja, det var inte bara en råtta som försökte ta mitt bröd. Det var: det oheliga, det råbarkade och det från mig väsensskilda.   
-  
-Stålet träffade råttans kropp med att klafsande ljud, buken som gav med sig. Den tittade upp mot mig i förvåning snarare än skräck. Granskade. Inte död, inte ens nära avliden men bruten i sin stridsiver. Katten reste sig upp, skakade av sig, hävde sig över råtthalsen, fräste och skakade kroppen upphetsat av och an. Ändå ryckte svansen, ändå stirrade råttblicken. Stirrade med en allt mer blodig underton. Det var jag som fick lov att vika undan, bort från ögonkontakten, det var jag som inte stod ut. Den sinade, förlorade allt mer av sin livskraft, men ända in i dödsögonblicket var gnagarkroppen segerviss. Jag kände den bekanta underkastelsen, vädjandet om förlåtelsen. Vi, råttan och jag, delade övertygelsen om att den ägde brödet. Att stugan, ja att hela världen, tillhörde den. Och att det var jag som inkräktade. Jag var den brutala.   
-  
-Katten släppte greppet, la ena tassen på den blodiga bestens mage som om den ville försäkra sig, känna frånvaron av puls. Den var död. Låg besegrad på rygg och visade upp såren som gapade, blicken stelnad och öppen. Inga drömmar om bröd och världsherravälde mera, bara klor som hängde blodlöst från tassarna. Ett kadaver, en samling celler utan annan ambition än att förmultna.   
-  
+Jag tog ett steg närmare, såg att brödet i påsen var angripet. Vände mig åter mot de båda kropparna som brottades – var det bröd allt detta handlade om? Råttan satt på kattens mage, svansarna vred sig spasmiskt som avhuggna elkablar. Gnagarkroppen med avskavda partier av skorv i gråa skinnet, kraftig om buken – jag kände en kväljning, kramp i halsen. Ändå kunde jag inte slita min blick från den. Det ryckte i min ena mungipa och jag grep något hårdare om mjölkpaketet. Katten höll på att förlora. Råttan släppte närmast ifrån sig ett skimmer, den hade en glöd i sitt sätt att strida som berättade att den var hemmastadd här. Om bröd fanns inom dessa väggar så tillhörde bakverket tvivelsutan råttan.  
+Ja, katten vek sig, den saknade den rätta stridskraften. Och jag höll väl, därmed, också på att förlora. För hur skulle jag någonsin kunna dela utrymme med en sådan råttbest? Hur skulle jag kunna leva i skuggan av den typen av självlysande hemmastaddhet?    
+Eldgaffeln stod kvar vid spisen. Jag smög dit utan att släppa slagsmålet med blicken. Besten höll på att vinna kampen, den kostade på sig att dra ut på, att njuta av striden. Katten kämpade, försökte sparka bort råttan med utspärrade klor på baktassarna utan att lyckas med mera än att rispa råttskinnet och skorvsvansen. Jag grep om järnet, höll eldgaffeln på så sätt som jag förstått att människor håller i golfklubbor. Min kropp laddade, spände muskel efter muskel.   
+”Här får du, råttbuse”, sa jag, klev in i striden, viss om min överlägsenhet. Ändå het och svettig i ansiktet, anfäktad – som om jag försvarade något jag länge hade ägt och kämpat för.   
+En slags värdighet. Ja, det var inte bara en råtta som försökte ta mitt bröd. Det var – det oheliga, det råbarkade och det från mig väsensskilda.   
+Stålet träffade råttans kropp med att klafs, ljudet av bukhuden som gav med sig. Djuret tittade upp mot mig i förvåning snarare än skräck. Granskade mig. Inte död, inte ens nära avliden men bruten i sin stridsiver. Katten reste sig upp, skakade av sig, hävde sig över råtthalsen, fräste och hivade gnagarkroppen upphetsat av och an. Ändå ryckte skorvsvansen, ändå stirrade råttblicken. Den glodde med en allt mer blodsprängd uppsyn. Det var jag som fick lov att vika undan ögonen, bort från den artöverskridande kontakten, det var jag som inte stod ut. Råttans liv sinade, den förlorade allt mer av sin livskraft, men ända in i dödsögonblicket var gnagarkroppen segerviss.   
+Jag kände den bekanta underkastelsen, vädjandet om förlåtelsen. Vi, gnagarbesten och jag, delade övertygelsen om att det var råttan som ägde brödet. Att stugan, ja, att hela världen tillhörde den. Och att det var jag, Siri som inkräktade. Siri den brutala.   
+Katten släppte greppet, la ena tassen på den blodiga bestens mage som om den ville försäkra sig, behövde känna frånvaron av puls. Råttan var död. Den låg besegrad på rygg och visade upp såren som gapade röda, blicken stelnad och öppen. Inga drömmar om bröd och världsherravälde mera, bara klor som hängde blodlöst från tassarna. Ett kadaver, en samling celler utan annan ambition än att förmultna.   
 ”Du är skyldig mig ett bröd”, sa katten andfått.   
-  
-Föste påsen med foten åt hans håll.  
-  
-”Varsågod, med råttpest och allt…”    
-  
-Katten tryckte in sin näsa bakom plasten och satte tänderna i brödet, drog fram en skiva, la sig med magen mot golvet och åt. Jag backade, satte mig på huk, iakttog rummet och katten, lutade mig tyst mot en lucka till ett skåp.   
-  
-”Du ser maskäten ut”, sa jag. Den bara fortsatte, tuggade med baktänderna utan minsta intention att svara. Höll fast brödet genom att pressa det ner mot det smutsiga golvet med ena tassen, drog och slet för att få loss större stycken.   
-  
+Jag föste påsen med foten åt hans håll.  
+”Varsågod Katt, med råttpest och allt.”   
+Katten tryckte in sin näsa bakom plasten och satte tänderna i brödet, drog fram en skiva, la sig med magen mot golvet och åt. Jag backade, satte mig på huk, iakttog rummet och katten, lutade mig tyst mot en lucka till ett underskåp.   
+”Du ser maskäten ut Katt”, sa jag.   
+Den bara fortsatte, tuggade med baktänderna utan minsta intention att svara. Han höll fast brödet genom att pressa ner det mot det smutsiga golvet med ena tassen, drog och slet för att få loss större stycken. 
 ”Och hur gör vi med råttkadavret?”, fortsatte jag.   
-  
-Han tuggade ur munnen, svalde, la sitt ansikte i en ironisk, spydig min. ”åh hur dör di mä jottdadavlet”, härmade han med en tillgjord, barnslig röst – vickade retsamt fram och tillbaka med huvudet, artikulerade dåligt med slapp tunga halvt utanför munnen och mungiporna riktade nedåt.  
-  
-Återgick sedan till att pressa i sig brödet.   
-  
-Den här katten skulle alltså inte bidra med särskilt mycket sällskap, det var ju trist.  Suckade och ställde mig upp.   
-  
-  
-  
-Första dagen i mitt nya liv – lät ansiktet slätas ut, slog bort tankarna på katten och kadavret. Det fanns en bänk som löpte utefter en av kökets väggar och över bänkens mitt fanns ett fönster med utsikt över en öppnare plätt av gräs, ängsmark, några buskar. Säkert gick det att hitta spår där ute av en trädgård, av odlingar, en gång ädla växter som förvildats och nu helt smälte in i övrig vegetation. La mina händer mot bänken och tittade ut. Hur bar man sig åt för att leva här, vad krävdes?   
-  
-Kände något fuktigt under ena handloven. Köket var i övrigt så torrt, smutsen var ett yrande damm snarare än något som klibbade. Kräkreflexen vällde upp och fastnade i halstrakten, dunsade mot en spänd deg, en motkraft. Tittade bort och lyfte handen, skakade den med spretande fingrar. Vågade inte titta, strök i stället handflatan mot en annan del av bänken. Där var det torrare, ett pulver närmast, låg som ett lager och så spindelväv på spindelväv.   
-  
+Han tuggade ur munnen, svalde, la sitt ansikte i en ironisk, spydig min.   
+”Åh hur dör di mä jottdadavlet”, härmade han med en tillgjord, barnslig röst – vickade retsamt fram och tillbaka med huvudet, artikulerade dåligt med slapp tunga halvt utanför munnen och giporna riktade nedåt. Han återgick raskt till att pressa i sig bröd.   
+Den här katten skulle alltså inte bidra med särskilt mycket sällskap, det var ju trist. Jag suckade och ställde mig upp.   
+
+Första dagen i mitt nya liv – jag lät ansiktet slätas ut, slog bort tankarna på katten och kadavret. Det fanns en bänk som löpte utefter en av kökets väggar och över bänkens mitt fanns ett fönster med utsikt över en öppnare plätt av gräs, ängsmark, några buskar. Säkert gick det att hitta spår där ute av en trädgård, av odlingar, en gång ädla växter som förvildats och nu helt smälte in i övrig vegetation. Jag la mina händer mot bänken och tittade ut. Hur bar man sig åt för att leva här, vad krävdes?   
+Jag kände något fuktigt under ena handloven. Köket var i övrigt så torrt, smutsen var ett yrande damm snarare än något som klibbade. Kräkreflexen vällde upp och blev en spänd deg innan den fastnade i halstrakten. Jag tittade bort och lyfte handen, skakade den med spretande fingrar. Vågade inte titta vad det var för kladd, strök i stället handflatan mot en annan del av bänken. Där var det torrare, ett pulver närmast, låg som ett lager och så spindelväv på spindelväv.   
 ”Är det du som har kräkts fram något kladd här?”, frågade jag katten.   
-  
-Han kom på fötter och började traska i en diagonal över golvet, en viss stolthet i hans steg.   
-  
-”Vänta, ska se efter. Hm…”, han hoppade upp på bänken, satte sig en bit ifrån och verkade gå igenom ett mindre bibliotek av minnen. Ännu hade jag inte vågat se efter själv. Anade i ögonvrån att han sträckte fram tassen, kände försiktigt.   
-  
-”Nej, det där är en vanlig fågelskit”, slog han fast och hoppade ner.   
-  
-Andetaget som satt fast i bröstet for ut genom munnen, iakttog hur kroppen släppte fram blodet igen och pulsen återvände till mera perifera kanaler – läpparna bultade friskt och pannan vätskade sig i en mild svettning. Fågelskit, uppfattade det som en god nyhet. Inte precis friskt och hälsosamt men mindre outhärdligt än till exempel det tunga råttkadavret som låg på golvet, bara någon meter ifrån mig.   
-  
-”Var kan jag tvätta mig?” Frågan flög fram utan större eftertanke. När den landade i rummet insåg jag det naiva, såg det stora glappet. I denna stuga fanns ingenting. Inte vatten, ingen toalett, inte något kylskåp och även om det fanns en vedspis så fanns inte direkt någon ved och inte några kärl att värma vatten i eller grytor till matlagning.   
-  
-Katten tittade alldeles stilla med roade ögon. Han sa inget, situationen var väl tillräckligt komisk ändå. Vad kunde tilläggas till uttalandet? Tvätta sig, hålla undan förfall, ohelighet, hålla fast vid det civiliserade. Tittade mig omkring på nytt, vilken kraft skulle det inte krävas? Vad för avgrundsstyrka skulle det inte gå åt för att inte förvildas, här?   
-  
-Fick lov att sätta mig ner på golvet. Riktigt sjönk ihop under insiktens tyngd. Glömde det kladdiga och smutsiga som svärtade ner händerna och kadavret framför mig på golvet. Lät det tjuta i öronen och svartna framför min blick. Var skulle jag ens börja?   
-  
-”Jaa du. Jag, personligen slickar mig ren”, sa katten. Han satte sig mitt emot, såg på mig med ett medlidande som förvirrade.   
-  
+Han kom på fötter och började traska i en diagonal över golvet, anade en viss stolthet.   
+”Vänta, ska se efter…”, han hoppade upp på bänken, satte sig en bit ifrån och verkade gå igenom ett mindre bibliotek av tidigare händelser. Ännu hade jag inte vågat se efter själv. Anade i ögonvrån att han sträckte fram tassen, han kände försiktigt.   
+”Nej, det där är en vanlig fågelskit”, slog han fast och hoppade ner, återgick till att tugga bröd. 
+Andetaget som satt fast i bröstet for ut genom munnen, jag iakttog hur kroppen släppte fram blodet igen och pulsen återvände till mera perifera kanaler – läpparna bultade friskt och pannan vätskade sig i en mild svettning. Fågelskit, jag uppfattade det som en god nyhet. Inte precis friskt och hälsosamt men mindre outhärdligt än till exempel det tunga råttkadavret som låg på golvet, bara någon meter ifrån mig. 
+”Var kan jag tvätta mig?”   
+Frågan flög fram utan större eftertanke. När den landade i rummet insåg jag det naiva, såg det stora glappet. I denna stuga fanns ingenting. Inte vatten, ingen toalett, inte något kylskåp och även om det fanns en vedspis så fanns inte direkt någon ved och inte några kärl att värma vatten i eller grytor till matlagning.   
+Katten tittade alldeles stilla med roade ögon. Han sa inget, situationen var väl tillräckligt komisk ändå. Vad kunde tilläggas till uttalandet? Tvätta sig, hålla undan förfall, ohelighet, hålla fast vid det civiliserade. Jag tittade mig omkring på nytt, vilken kraft skulle det inte krävas? Vad för avgrundsstyrka skulle det inte gå åt för att inte förvildas, här?   
+”Jaa du”, sa katten. Han satte sig mitt emot mig, såg åt mitt håll med ett medlidande som förvirrade. ”Jag personligen slickar mig ren.” Han demonstrerade utan entusiasm, tungan mot tassen, rytmiska rörelser.    
 ”Var ska jag ens börja?”   
-  
-Katten vände sig om, gick mot kökets ena hörn. Där låg en hög med bråte, lite tyg, kartong, något som liknade isolerings-ull.  
-  
+Katten vände sig om, gick mot kökets ena hörn. Där låg en hög med bråte, lite tyg, kartong, mörkfläckad isoleringsull.  
 ”Nu får du vara tyst, människa, jag sover alltid efter maten”   
-  
 ”Är det några fler rutiner du har, som jag behöver förstå och ta hänsyn till? Jag menar, eftersom vi nu delar bostad?”, frågade jag katten.   
-  
-”Håll käften bara, det kan vara din rutin.” Han la sig till rätta i bråten, sträckte halsen och gapade på en stark inandning innan han slöt ögonen och somnade.  
-  
+”Håll käften bara, det kan vara din rutin.”   
+Han la sig till rätta i bråten, sträckte halsen och gapade på en stark inandning innan han slöt ögonen och somnade.  
+
+
 Reste mig upp och gick runt i rummet, stäckte ut musklerna i armarna, försökte få liv i mina paralyserade idéer. Kanske vore det lättare att helt enkelt bo i bilen? Suckade och råkade med utandningen blåsa liv i ett gammalt småkrypsbo – damm av insektsdelar. Inhalerade en spröd vinge från ett flygfä och några större partiklar som fastnade i halsens ännu fuktiga hinnor. Jag övermannandes. Utmaningen – den svindlade framför ögonen. Harklade mig, torrt, det raspade.   
   
 Satte fingertopparna hårt mot en fuktskada i tapeten, som vore det tangenter i ett klaver. Fingrarna mot det sträva pappret, vibration och friktion. Slog an ett tyst ackord. Sjönk djupt in i anslaget. Och det kändes just så som jag hade föreställt mig att det skulle kännas att synda. Att låta något vilset och direkt hälsovådligt, som möglet och fukten i väggarna här, bli till ett rättesnöre i livet. Att låta inrätta livet utefter något sådant, som en fuktskada. Just för omgivningens förmåga att omringa min själ – att väggarna utgjorde en ram. Ja, detta kök kunde ersätta det regelverk, den konstruktion som religionen tidigare erbjudit som andlig hemvist.   
