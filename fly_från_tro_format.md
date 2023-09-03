@@ -1112,7 +1112,8 @@ Fick mig tillslut upp på fötter, och väl där, upprätt, fick jag för mig at
 ”Vi måste gå härifrån”, sa jag till katten, utan att veta i vilken riktning vi borde röra oss.   
   
 ”Ska bara plocka ner den här”, sa jag, och gick mot spegeln, spände mig, lät det bulta och leva inuti.     
-  
+
+## Nytt kapitel    
 Jag tittar in i backspegeln och ser mitt eget ansikte, huden som blossar. Ögonbrynen som är ljusa och vars form försvinner ut mot tinningen och ögonen som är blå. Men måste släppa mig själv med blicken för att ta in världen, verkligheten och vägen.   
   
 Sänker hastigheten lite till för det ger mig en känsla av att jag drar ut på tiden. Att jag suger musten av de ögonblick som är mina här på jorden. Saktar ner tills jag nästan står stilla och jag kör av mot sidan av vägen – jag kan inte låta bli. Trycker ner bromsen helt och märker hur hjärtat slår, hårt och tätt. Lägger min hand mot bröstet, det hickar och rör sig inuti.   
